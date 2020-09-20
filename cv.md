@@ -25,3 +25,14 @@ TBD
 Position: teamlead & asessor of internal control. I managed groups of teachers and managers in order to help them to meet KPI goals.
 
 2. Before: project manager (motion design studio), PR specialist, journalist.
+
+## Education:
+* September 2020 - now — RSS school (JS)
+* August 2020 - now — Netology courses (JS)
+* 2019 — Mini-MBA (at Skyeng)
+* 2011-2017 — BSc in Journalism (BSU)
+
+## Languages:
+1. Belorussian - native;
+2. Russian - native;
+3. English - Upper Intermidiate (I've worked with partners from Europe and USA for 2 years. Also my current job consists of working with English language teachers)
